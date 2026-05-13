@@ -1,4 +1,4 @@
-
+custom Automation for VMware Fusion for macOS - network-speed and file-archiving offers the most advanced VMware Fusion for macOS automation, with network-speed and
 
 
 
